@@ -362,6 +362,8 @@ She says it's funnier than the ==piano-playing== cat.
 
 What can I do to ==make it up 弥补== to you?
 
+We **haven't heard from him** in over three weeks.
+
 I hate that you're ==going through 承受着== this.
 
 Not even as a birthday present? 
@@ -372,3 +374,54 @@ I can't make an exception for you.
 
 on the line 来电话了
 
+```
+papasan 摇椅
+miracle 神奇的
+blanket 毯子
+Block out 屏蔽
+swamp/swɑːmp/ with 忙于......
+pack up 整理,打包
+intrude /ɪnˈtruːd/ 打扰 闯入
+bug  /bʌɡ/ <非正式>烦扰
+dresser /ˈdresər/  梳妆台
+```
+
+Have you **tried putting** her in the papasan or the miracle blanket?
+
+Hey, honey. I **got to** call you back. Sarah's here.
+
+Is everything all right at home?
+
+Did you hear what I said?
+
+And **as a male**, what do you think he was thinking?
+
+I mean, do you think he wants to **get back** together?
+
+Because we've **almost** stopped fighting.
+
+And the sex was amazing. We **were** on the washing machine.
+
+Ew! **Blocking out** that visual.
+
+Sorry. But seriously, I mean, maybe this seperation was **what** the relationship needed, you know?
+
+That's it? 就这样吗？ Talk to Joe?
+
+Look, I'm completely ==swamped with== this new account.
+
+I haven't **finished packing up** the office.
+
+Sorry to **intrude**. 
+
+I see my mom doesn't **bug you about** keeping your room clean.
+
+And I just couldn't **figure out** what to wear.
+
+Yeah, I put them **in boxes** **in the corner**.
+
+You want me to **grab them** for you?
+
+No, thanks. I'll get it.
+
+I didn't actually. I just found it in the **dresser**.
